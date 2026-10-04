@@ -12,7 +12,7 @@
 
 ## 📥 Download
 
-👉 **[Download Resume (PDF)](./Armin_EisaBeigloo_Resume_English.pdf.pdf)**
+👉 **[Download Resume (PDF)](./Armin_Isa_Network_Engineer.pdf.pdf)**
 
 ---
 
