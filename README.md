@@ -12,7 +12,7 @@
 
 ## 📥 Download
 
-👉 **[Download Resume (PDF)](./Armin_EisaBeigloo_Resume_English.pdf)**
+👉 **[Download Resume (PDF)](./Armin_EisaBeigloo_Resume_English.pdf.pdf)**
 
 ---
 
